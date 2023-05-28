@@ -1,1 +1,1 @@
-## Code for interest, love for enthusiastic.
+## Code for interest, love for enthusiasm.
